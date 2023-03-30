@@ -1,1 +1,1 @@
-# Design thinking, ux e metodologias ágeis.
+# Design thinking, ux e metodologias ágeis
